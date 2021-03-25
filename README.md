@@ -1,0 +1,2 @@
+# d-kkan
+malzemeler makinalar
